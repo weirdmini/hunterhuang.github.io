@@ -1,1 +1,1 @@
-# hunterhuang.github.io
+# weirdmini.github.io
